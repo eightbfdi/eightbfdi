@@ -1,7 +1,7 @@
 ![8ts54l](https://github.com/user-attachments/assets/18eb1a57-5d8a-4040-864a-0e8756bacee8)
-"everyone adores *you*.."
+"I want to *live* but im told to *die*"
 ![15 sin título_20241024075233](https://github.com/user-attachments/assets/415d8fb9-23e6-4e0f-83de-d4923fd1fcbc)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ"..atleast *i* do."
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ"I want to *die* but im told to *live*"
 
 ㅤㅤ.ㅤㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤㅤ.
 
