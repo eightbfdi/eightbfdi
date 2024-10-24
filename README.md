@@ -1,38 +1,15 @@
-![27 sin título_20241012094656](https://github.com/user-attachments/assets/49c60583-baad-4efb-a69a-e858d2dfe6da)
+![8ts54l](https://github.com/user-attachments/assets/18eb1a57-5d8a-4040-864a-0e8756bacee8)
+"everyone adores *you*.."
+![15 sin título_20241024075233](https://github.com/user-attachments/assets/415d8fb9-23e6-4e0f-83de-d4923fd1fcbc)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ"..atleast *i* do."
 
- . . .  Heyy, im eight / dani ! ^_^ ( uh you aleeady saw ghat but shhhh )
+.ㅤㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤㅤ.
 
-> . im eight's and nonagon's #1 fan !! /srs
+ㅤㅤㅤ. . eight ***or*** dani ✧ he , *they* , it .
+ㅤㅤㅤㅤㅤㅤㅤ![uo9p99](https://github.com/user-attachments/assets/f04203e2-1d90-4040-a12f-672f1fd195f1)![gyo1l3](https://github.com/user-attachments/assets/8ff14a75-035a-4410-9d1c-4bbfc2f444f2)![mlcavz](https://github.com/user-attachments/assets/e24c5f90-940a-4f97-9eed-1acf98a7aa45)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤminor
 
-> . i like object shows.. especially the ones with algebraliens as hosts.. or just with algebraliens in general.. i lov algebraliens!!
+ㅤㅤㅤ#1 fiveeight shipper ✧ n also; 
+ㅤㅤㅤㅤㅤㅤeight & nonagon's #1 fan
 
-> . i really like uh five x eight and ten x two.. especially uhh fiveeight. so i might be talking about those ships all the time..
-
-> . i have a really bad memory, so dont «do you remember--» me.,.
-
-> . also i SUCK at explaining things
-
-> . I LOVE EIGHT SO MUCHHH im gonna talk about him all the time hhehehw
-
-> . almost every monday i wont be online for 8 (eight mentioned no way) hours,. STUPID SCHOOL i hate you
-
-
- 
- . fandoms im in bc uh yes
-  > object show community
- 
-  > pjsk
-  
-  > tadc
-
-  > (almost) every cartoon network show
- 
-  > dhmis 
-
-> THERES MORE BUT I DONT REMEMBER UGHHH
-
-. ok yeah bye
-<!---
-eightbfdi/eightbfdi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+ㅤㅤㅤㅤi rlly like xfohv, so i might be ㅤㅤㅤㅤㅤtalking about it all the time.
