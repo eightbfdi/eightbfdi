@@ -12,4 +12,4 @@
 ㅤㅤㅤㅤ#1 fiveeight shipper ✧ n also; 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤeight & nonagon's #1 fan
 
-ㅤㅤㅤㅤㅤi rlly like xfohv, so i might be ㅤㅤㅤㅤㅤㅤㅤㅤtalking about it all the time.
+ㅤㅤㅤㅤi rlly like xfohv, so i might be ㅤㅤㅤㅤㅤㅤㅤㅤtalking about it all the time.
