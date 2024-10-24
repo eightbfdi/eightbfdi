@@ -8,7 +8,7 @@
 ㅤㅤㅤㅤ. . eight ***or*** dani ✧ he , *they* , it .
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![uo9p99](https://github.com/user-attachments/assets/f04203e2-1d90-4040-a12f-672f1fd195f1)![gyo1l3](https://github.com/user-attachments/assets/8ff14a75-035a-4410-9d1c-4bbfc2f444f2)![mlcavz](https://github.com/user-attachments/assets/e24c5f90-940a-4f97-9eed-1acf98a7aa45)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤminor
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤminor
 
 ㅤㅤㅤㅤ#1 fiveeight shipper ✧ n also; 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤeight & nonagon's #1 fan
